@@ -14,11 +14,11 @@ It was also not uncommon for the **Totacocohua** to be hired out at exorbitant p
 ## Youth
 As a non-sorcerer **Yugie**'s path was to become an aspirant Clanblade warrior, training to become an elite warrior, serving the Clan and **Tectuktitlay**. 
 
-Any aspirant Clanblades or Spellscales who were deemed unsuited to sorcery or solidery were demoted from the revered inner circles of the Clan to being assosciate members. This could occur at birth, or at any point in their training. Most failed at the point of their rite of passage before they entered adulthood, and full induction to the **Totacocohua**.
+Any aspirant Clanblades or Spellscales who were deemed unsuited to sorcery or solidery were demoted from the revered inner circles of the Clan to being associate members. This could occur at birth, or at any point in their training. Most failed at the point of their rite of passage before they entered adulthood, and full induction to the **Totacocohua**.
 
 Their connection to the Clan's blood still remained, and as such they had some privileges over normal Draji citizens. With the Dray culture of ruthlessly avenging any wrongs against their kin and the clan's powerful connections, they enjoyed a level of security that most people would not.
 
-Most often these lower clan members worked as merchants, lesser mercernaries or in administrative roles within government.
+Most often these lower clan members worked as merchants, lesser mercenaries or in administrative roles within government.
 
 Trained in the martial arts, his prowess as a quick thinking and natural combat leader was soon recognised and he was trained not only how to wield blade and shield, but also in tactics, strategy and leadership.
 
