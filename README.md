@@ -5,7 +5,7 @@
 
 **Yugie** was born into the **Totacocohua** (Our Father's Serpents), a Dray Clan bound to **Tectuktitlay**, Sorcerer King of Draj. 
 
-Formerly the **Desert Maw** clan, the **Totacocohua** were incorporated into Draj society several centuries ago, after a long history of trade relations and serving as mercenaries for Draj. Valued for their abilities and their loyalty to agreements they were essentially 'bought out', signing a contract in perpetuity. Thus they became an elite arm of the Draji Templars that work alongside the Jasuan Knights, enforcing the will of **Tectuktitlay** and guarding the holdings and caravans of Draj.
+Formerly the **Desert Maw** clan, the **Totacocohua** were incorporated into Draj society several centuries ago, after a long history of trade relations and serving as mercenaries for Draj. Valued for their abilities and their loyalty to agreements, they were essentially 'bought out'; signing a contract for every member of the clan to serve until death in perpetuity. Thus they became an elite arm of the Draji Templars that work alongside the Jasuan Knights, enforcing the will of **Tectuktitlay**, serving as elite troops and commanders in his armies.
 
 In addition to calling upon their combat prowess as elite mages, many of the Spellscale sorcerers were inducted into the secrets of the Sorcerer King, and worked on Draconic research. **Tectuktitlay** was obsessed with both empowering his beloved Drakes with greater intelligence and stength, and of learning the secrets of the Dray's progenitor **Dregoth**, and his attempted Draconic ascension.
 
@@ -14,11 +14,11 @@ It was also not uncommon for the **Totacocohua** to be hired out at exorbitant p
 ## Youth
 As a non-sorcerer **Yugie**'s path was to become an aspirant Clanblade warrior, training to become an elite warrior, serving the Clan and **Tectuktitlay**. 
 
-Any aspirant Clanblades or Spellscales who were deemed unsuited to sorcery or solidery were demoted from the revered inner circles of the Clan to being associate members. This could occur at birth, or at any point in their training. Most failed at the point of their rite of passage before they entered adulthood, and full induction to the **Totacocohua**.
+Any aspirant Clanblades or Spellscales who were deemed unsuited to sorcery or soldiery were demoted from the revered inner circles of the Clan to being associate members. This could occur at birth, or at any point in their training. The most common cause for demotion was failing the clan's Rite of Passage before they entered adulthood and achieved full induction to the **Totacocohua**.
 
-Their connection to the Clan's blood still remained, and as such they had some privileges over normal Draji citizens. With the Dray culture of ruthlessly avenging any wrongs against their kin and the clan's powerful connections, they enjoyed a level of security that most people would not.
+The connection of these lesser members to the Clan's blood still remained, and as such they had many privileges over normal Draji citizens. With the Dray culture of ruthlessly avenging any wrongs against their kin and the clan's powerful connections, they enjoyed a level of security that most people would not.
 
-Most often these lower clan members worked as merchants, lesser mercenaries or in administrative roles within government.
+Most often these lesser clan members worked as merchants, less valued mercenaries or in administrative roles within government.
 
 Trained in the martial arts, his prowess as a quick thinking and natural combat leader was soon recognised and he was trained not only how to wield blade and shield, but also in tactics, strategy and leadership.
 
